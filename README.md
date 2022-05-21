@@ -10,6 +10,5 @@
 
 - 🌱 I like to learn new things
 
-- 📫 You can contact me from discord **`Pocan#4406**
+- 📫 You can contact me from discord **Pocan#4406**
 
-#⚡ 
